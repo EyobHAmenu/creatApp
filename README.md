@@ -1,0 +1,1 @@
+You are traveling multiple countries overseas on vacation and want to write a letter to you parents in the states. In that letter, you would like to give them details about the country you're visiting. 
